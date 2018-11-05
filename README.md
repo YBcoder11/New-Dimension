@@ -1,2 +1,2 @@
 # New-Dimension
-A new fellow programmer here.Creating in... 
+We need more project ideas to have creative branch.
